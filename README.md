@@ -1,1 +1,1 @@
-https://nsapaev.github.io/rsschool-cv/cv
+https://nsapaev.github.io/rsschool-cv/
